@@ -4,3 +4,5 @@ name: Ben Gardner username: 5pointr <br>
 name: Evan Lesnefsky username: EvanLesnefsky <br>
 name: Emma Worthington username: EmmaWorthington235 <br>
 name: Blake DeHaas username: blde8334
+
+https://planningpokeronline.com/ZUq8PnHkU8E0wg1B4I0O
